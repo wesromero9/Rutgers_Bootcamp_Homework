@@ -45,3 +45,10 @@
 
 ## Resources 
 
+* https://crypto.com/us/
+
+* https://www.marketsandmarkets.com/Market-Reports/blockchain-technology-market-90100890.html
+
+* https://www.gemini.com/cryptopedia/crypto-com-blockchain-ecosystem-overview
+
+* https://www.crunchbase.com/organization/monaco-technology-gmbh
